@@ -19,7 +19,7 @@ Hᴇʀᴇ Is Tʜᴇ Hᴇʟᴘ Fᴏʀ Mʏ Cᴏᴍᴍᴀɴᴅs.</b>"""
 
 Tʜɪs Bᴏᴛ ʜᴀs Lᴀᴛᴇsᴛ ᴀɴᴅ Aᴅᴠᴀɴᴄᴇᴅ Fᴇᴀᴛᴜʀᴇs⚡️
 
-Where is source code? - <a href='https://github.com/rolex-filter-bot/THALA_AJITH'>ᴄʟɪᴄᴋ ʜᴇʀᴇ</a></b>
+Where is source code? - <a href='https://tnseries.com/uIXZpg'>ᴄʟɪᴄᴋ ʜᴇʀᴇ</a></b>
 
 
 Developer - <a href='https://t.me/ROLEXX_DAS'>ᴄʟɪᴄᴋ ʜᴇʀᴇ</a></b>"""
